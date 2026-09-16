@@ -1,4 +1,4 @@
-# Hi, I'm Yildiz 👋
+# Hi, I'm Sanusi👋
 
 **Blending code, design, and education**
 
